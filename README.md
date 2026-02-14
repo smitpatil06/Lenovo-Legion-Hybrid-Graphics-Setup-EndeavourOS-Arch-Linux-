@@ -1,0 +1,1 @@
+# Lenovo-Legion-Hybrid-Graphics-Setup-EndeavourOS-Arch-Linux-
